@@ -1,1 +1,1 @@
-# REMO-O-DE-N-S
+REMOÇÃO DE NÓS
